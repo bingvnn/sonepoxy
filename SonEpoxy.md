@@ -5,3 +5,5 @@
 - <a href="http://thegioiepoxy.com/thi-cong-son-epoxy/c181407.html">thi cong son epoxy</a> gốc nước ngoài những khả năng như sơn Epoxy gốc dầu còn có khả năng chống cháy, chống trơn trượt rất tốt. Dòng sản phẩm sơn Epoxy gốc nước thường được sử dụng để thi công sơn epoxy trong các nhà máy thực phẩm, nhà ăn, bệnh viện, các khu bể bơi, nền nhà, gara ô tô, sàn tầng hầm…
  
 Về mặt giá thành thì sơn Epoxy cũng cho thấy một lợi thế rõ ràng: Chi phí thấp để có được một mặt sàn diện tích lớn mà vẫn đảm bảo độ bền đẹp so với số tiền bỏ ra để ốp lát gạch. Vậy tại sao chúng ta không nghĩ ngay tới việc thi công sơn Epoxy cho công trình của mình?
+
+Facebook: <a href="https://www.facebook.com/ThiCongSonEpoxyTPHCM">https://www.facebook.com/ThiCongSonEpoxyTPHCM</a>
